@@ -1,1 +1,3 @@
 # seizurecube
+
+CAN INDUCE SEIZURES OR SOME SHIT
